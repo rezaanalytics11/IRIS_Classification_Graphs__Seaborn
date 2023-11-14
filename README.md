@@ -1,3 +1,5 @@
+![Figure_21](https://github.com/rezaanalytics11/assignment-36/assets/105513524/d6fb92e5-1152-450b-b2a7-95daefaf6ceb)
+![Figure_1](https://github.com/rezaanalytics11/assignment-36/assets/105513524/178a8d1f-c3d6-4d08-9aa5-c818fc62ce47)
 ![Figure_3](https://github.com/rezaanalytics11/assignment-36/assets/105513524/c3fbbd94-91e3-4bf9-b176-d393b8ce2a45)
 # assignment-36![Uploading Figure_2.png…]()
 ![Uploading Figure_1.png…]()
